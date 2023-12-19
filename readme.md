@@ -1,3 +1,4 @@
-![Unbenannt](https://github.com/QUSENK/NitroSniper/assets/109237205/d46809d9-6c30-44f5-8aaa-dd5e89d76f80)
 
-[Discord](https://discord.gg/qp8NvwjHyK)
+<img width="661" alt="Unbenannt" src="https://github.com/QUSENK/NitroSniper/assets/109237205/97316c38-5fe6-4ddb-bae0-ba1e589a7408">
+
+[Discord]([https://discord.gg/qp8NvwjHyK](https://discord.gg/vpjBuPaXWW)https://discord.gg/vpjBuPaXWW)
